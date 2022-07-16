@@ -1,0 +1,2 @@
+# Bomba
+Herkes gelebilir
